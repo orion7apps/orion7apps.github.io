@@ -20,5 +20,5 @@ Esperemos que esteja esclarecido e, como mencionado anteriormente, se houver alg
 
 Esta política é efetiva a partir de Julho/2020.
 
-### Support or Contact
+### Suporte ou contato
 Tem alguma dúvida? pode entrar em contato conosco através do email: orion7apps@gmail.com
